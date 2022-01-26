@@ -1,3 +1,3 @@
-# Frequently-Asked-Fuestions
+# Frequently-Asked-Questions
 
 준비중..
